@@ -2,7 +2,7 @@
 - 👀 I’m interested in korfbal, swimming and coding
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me karel_jasper_minecraft
+- 📫 How to reach me my discord = karel_jasper_minecraft
 - 😄 gender: man
 - ⚡ Fun fact: im dumb
 
